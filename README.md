@@ -19,7 +19,7 @@ I'm trying to get back into Pony Town after a few years of not playing!
 
 🌤️ Please whisper me if you want to crown me or interact, I am very often AFK or busy on my other monitor  
 🌿 I rarely talk to anybody I don't know, please do not start up a conversation with me if I don't know you well!  
-✨️ I prefer not to be kissed or booped by those I don't know, not because of touch discomforts, just because I'm bad at interacting with others  
+✨️ I prefer not to be kissed or booped by those I don't know, not because of touch discomforts, I'm just bad at interacting with others  
 🌱 I love joining regis/scouts/species, if you are in any that have cute unis and a friendly vibe, I'm always open to reccommendations!  
 🦋 I'm 99% of the time only on 18+, however sometimes I will go on Safe if I'm doing activities or looking at skins  
 🌈 I usually sit at Docks, however sometimes I'll switch to Spawn if I'm bored and wanna people-watch  
