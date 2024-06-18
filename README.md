@@ -22,6 +22,7 @@ I'm trying to get back into Pony Town after a few years of not playing!
 ✨️ I prefer not to be kissed or booped by those I don't know, not because of touch discomforts, just because I'm bad at interacting with others  
 🌱 I love joining regis/scouts/species, if you are in any that have cute unis and a friendly vibe, I'm always open to reccommendations!  
 🦋 I'm 99% of the time only on 18+, however sometimes I will go on Safe if I'm doing activities or looking at skins
+🌈 I usually sit at Docks, however sometimes I'll switch to Spawn if I'm bored and wanna people-watch
 
 ![](https://i.imgur.com/OQ1mZHe.png)
 
@@ -58,8 +59,8 @@ I'm trying to get back into Pony Town after a few years of not playing!
 🌼 Nanachi (MiA)  
 ☘️ Faputa (MiA)  
 🍂 Audino (Pokémon)  
-🌴 Hapihapitchi (Tamagotchi)
-💐 Lovelitchi (Tamagotchi)
-🍁 Tammi (Animal Crossing)
+🌴 Hapihapitchi (Tamagotchi)  
+💐 Lovelitchi (Tamagotchi)  
+🍁 Tammi (Animal Crossing)  
 
 ![](https://i.imgur.com/3X6VZ4T.png)
