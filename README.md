@@ -29,9 +29,9 @@ I'm trying to get back into Pony Town after a few years of not playing!
 ## 🍃 DNI
 
 🌻 Proshippers please stay away from me, you make me super uncomfortable  
-🌳 Anyone who has 'problematic' interests and is not critical of them
-🐾 People who boast about being annoying/problematic/cancelled
-🌾 Anyone who often talks about doing drugs of any kind (especially weed) 
+🌳 Anyone who has 'problematic' interests and is not critical of them  
+🐾 People who boast about being annoying/problematic/cancelled  
+🌾 Anyone who often talks about doing drugs of any kind (especially weed)  
 
 ![](https://i.imgur.com/diIlhAV.png)
 
