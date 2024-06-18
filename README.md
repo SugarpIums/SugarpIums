@@ -51,7 +51,7 @@ I'm trying to get back into Pony Town after a few years of not playing!
 * Pokémon (Fakémon, Mainline games gens 4-7, Mystery Dungeon Explorers, Snap, PokéPark)
 * Other video games (VRChat, Modded Minecraft, Modded Stardew Valley, Pikmin, Splatoon, BOTW and TOTK, Slime Rancher, Animal Crossing, Palworld, UT+DR, Fall Guys, Katamari Damacy, Lethal Company)
 * Anime (Made In Abyss, Madoka Magica, Wonder Egg Priority, The Promised Neverland, Tokyo Mew Mew, Magical Girl Raising Project) 
-* Other shows (Smiling Friends, My Little Pony, Black Mirror)
+* Other shows (TADC, Smiling Friends, My Little Pony, Black Mirror)
 
 ![](https://i.imgur.com/IptxcGt.png)
 
