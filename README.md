@@ -8,7 +8,7 @@ Hi, my name is **Plum**!
 * They/them
 * 21 yrs old
 * Nonbinary, xenic, girlflux
-* Objectum lesbian
+* Lesbian
 * Autism + GAD + Physically disabled
 
 I'm trying to get back into Pony Town after a few years of not playing!
